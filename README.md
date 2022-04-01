@@ -2,9 +2,9 @@
 
 1.Marry a financially right person 
 
-2.save and invest 50% of your salary increment
+2.Save and invest 50% of your salary increment
 
-3.You must have insurance
+3.You must have insurance-to protect your money
 
 4.Dont under estimate the cost of ownership house and car are liabilities
 
