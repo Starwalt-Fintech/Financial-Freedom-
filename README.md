@@ -8,4 +8,4 @@
 
 4.Dont under estimate the cost of ownership house and car are liabilities
 
-5.Spent 1hour each to learn about personal finance
+5.Spent 1hour every week to learn about personal finance
